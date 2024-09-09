@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Raffay and my github name is @QuantumInnovator
+- 👋 Hi, I’m Raffay and my github is @QuantumInnovator
 - 👀 I’m interested in new emerging technologies and will change the world
 - 🌱 I’m currently learning latest state of the art technologies
 - 💞️ I’m looking to collaborate with highly motivated tech enthusiast
