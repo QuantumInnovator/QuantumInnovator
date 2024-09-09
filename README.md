@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Raffay and my github is @QuantumInnovator
-- 👀 I’m interested in new emerging technologies and will change the world
+- 👀 I’m interested in new emerging technologies and willing to change the world through AI revolution
 - 🌱 I’m currently learning latest state of the art technologies
 - 💞️ I’m looking to collaborate with highly motivated tech enthusiast
 - 📫 Reach me through my email abdulraffay854@gmail.com and its my linkedin https://www.linkedin.com/in/abdul-raffay-781a85298/?originalSubdomain=pk
