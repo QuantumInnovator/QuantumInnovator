@@ -16,3 +16,4 @@ Here, we dive deep into the fascinating world of innovative tech solutions. On a
 🤝 Join us on this thrilling journey to push the boundaries of what's possible! 🌟 Let's innovate together and make quantum leaps in technology! 💡💻
 
 
+<img width="1080" height="592" alt="image" src="https://github.com/user-attachments/assets/b07d33f4-55c2-40ba-b153-69060037821b" />
